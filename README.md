@@ -25,7 +25,15 @@ stuff bout meeee!!11!
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <p align="center">
-so uh haii im any of the names above, im a fiction kin and i love being friends with people on ponytown and i dont really add people on my other stuff like discord or tiktok unless i know them prettyyyyy well, c+h freely if im offtab or ontab aslong as im not with friends!11!!11! also i dont tend to like it when people take inspo from my ponies without perms it kinda hurts my feelings!!! Please feel free to interact with me (especially homestuckies) if im ontab and if i dont have iwc in my name :o3
+so uh haii im any of the names above, im a fiction kin and i love being friends with people on ponytown and i dont really add people on my other stuff like discord or tiktok unless i know them prettyyyyy well, c+h freely if im offtab or ontab aslong as im not with friends!11!!11! also i dont tend to like it when people take inspo from my ponies without perms it kinda hurts my feelings!!! Please feel free to interact with me (especially homestuckies) if im ontab and if i dont have iwc in my name :o3 
+
+<p align="center">
+  my main intrest is homestuck rn but i have other interests like tf2, eddsworld, kipo and the age of wonderbeasts, she-ra, httyd also rick and morty.
+
+
+<p align="center">
+BOUNDARIESSSS!!1 okay so please dont boop or cover me i dont like it and it makes me uncomfortable so plz respect that, i also dont like it when strangers walk up to me and kiss me. if you do any of these things as a "joke" i will block/hide you i dont care if i come off as chronically online i just dont like it when people do that to me.
+
 
 
 <p align="center">
