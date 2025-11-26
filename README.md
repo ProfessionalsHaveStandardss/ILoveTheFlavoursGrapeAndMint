@@ -32,7 +32,7 @@ so uh haii im any of the names above, im a fiction kin and i love being friends 
 
 
 <p align="center">
-BOUNDARIESSSS!!1 okay so please dont boop or cover me i dont like it and it makes me uncomfortable so plz respect that, i also dont like it when strangers walk up to me and kiss me. if you do any of these things as a "joke" i will block/hide you i dont care if i come off as chronically online i just dont like it when people do that to me.
+BOUNDARIESSSS!!1 okay so please dont boop or cover me (unless friend) i dont like it and it makes me uncomfortable so plz respect that, i also dont like it when strangers walk up to me and kiss me. if you do any of these things as a "joke" i will block/hide you i dont care if i come off as chronically online i just dont like it when people do that to me.
 
 <p align="center">
 DNI list! 
