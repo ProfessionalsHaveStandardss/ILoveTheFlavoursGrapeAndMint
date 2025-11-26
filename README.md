@@ -1,7 +1,7 @@
 <p align="center">
 <img width="750" height="562" alt="image" src="https://github.com/user-attachments/assets/db5ebe99-ba55-4872-acdd-656a398e54f0" />
 <p align="center">
-ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ<br/>
+ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
 <br/>
 <br/>
   <p align="center">
@@ -26,3 +26,11 @@ stuff bout meeee!!11!
 
 <p align="center">
 so uh haii im any of the names above, im a fiction kin and i love being friends with people on ponytown and i dont really add people on my other stuff like discord or tiktok unless i know them prettyyyyy well, c+h freely if im offtab or ontab aslong as im not with friends!11!!11! also i dont tend to like it when people take inspo from my ponies without perms it kinda hurts my feelings!!! Please feel free to interact with me (especially homestuckies) if im ontab and if i dont have iwc in my name :o3
+
+
+<p align="center">
+DNI list! 
+-11 or 25+ sorry i dont feel comfortable, crk,tcc or tadc fans. darkshippers. (proship idrc just dont be an asshole or a freak you will be blocked)
+
+
+
