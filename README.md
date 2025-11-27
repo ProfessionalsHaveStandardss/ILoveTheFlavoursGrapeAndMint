@@ -36,7 +36,6 @@ BOUNDARIESSSS!!1 okay so please dont boop or cover me (unless friend) i dont lik
 
 <p align="center">
 DNI list! 
--12 or 22+ sorry i dont feel comfortable, crk,tcc or tadc fans. darkshippers. (proship idrc just dont be an asshole or a freak you will be blocked)
-
+-12 or 22+ sorry i dont feel comfortable, crk,tcc or tadc fans. darkshippers.
 
 
