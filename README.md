@@ -1,5 +1,5 @@
 <p align="center">
-<img width="750" height="562" alt="image" src="https://github.com/user-attachments/assets/db5ebe99-ba55-4872-acdd-656a398e54f0" />
+<img width="750" height="562" alt="image" src="https://64.media.tumblr.com/2174b5b29fa10b125bb30f7f67c62361/46ce8e91c495afc5-f4/s2048x3072/9f4151700420c630e338429aa4ea7427a2e2fbb3.pnj" />
 <p align="center">
 ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
 <br/>
@@ -19,23 +19,24 @@
 
 <p align="center">
 <br/>
-stuff bout meeee!!11!
-
+some stuff about me
+  
 <p align="center">
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <p align="center">
-hey motherfuckers, im a fiction kin and i love being friends with people on ponytown and i dont really add people on my other stuff like discord or tiktok unless i know them prettyyyyy well, c+h freely if im offtab or ontab aslong as im not with friends!11!!11! also i dont tend to like it when people take inspo from my ponies without perms it kinda hurts my feelings!!! Please feel free to interact with me (especially homestuckies) if im ontab and if i dont have iwc in my name :o3 
+ok hey motherfuckers, call me any of the names above i like to interact with people when i can although im mostly offtab and might not respond unless you whisper me. Also ask to be my friend/ to friend me since i have my friend requests off because im tired off annoying randos that dont even talk to me adding me, i also dont add people unless ive had a good chat and i feel comfortable adding you. If you end up chatting with me i can sometimes be shy or energetic depending on my mood but i promise im a nice person, I LOVEEE sitting by people or just cuddling with someone please c+h freely anytime (esp homestuck/eddsworld) i really like it!!!!.
 
 <p align="center">
-  my main intrest is homestuck rn but i have other interests like tf2, eddsworld, kipo and the age of wonderbeasts, she-ra, httyd also rick and morty.
+  also if you want more info about me pls look at my strawpage (mostly pc only but u can still see alot of my stuff)
 
 
 <p align="center">
-BOUNDARIESSSS!!1 okay so please dont boop or cover me (unless friend) i dont like it and it makes me uncomfortable so plz respect that, i also dont like it when strangers walk up to me and kiss me. if you do any of these things as a "joke" i will block/hide you i dont care if i come off as chronically online i just dont like it when people do that to me.
-
+ponytown boundries, so like dont cover me i genuinely hate it same with booping me now i dont really mind kissing but sometimes i will move away just to let you know i dont like it, also if you do any of these on purpose i will hide and or block you.
 <p align="center">
 DNI list! 
--12 or 22+ sorry i dont feel comfortable, crk,tcc or tadc fans. darkshippers.
-
+-12 or 22+ sorry i dont feel comfortable, some crk fans like if i say dni then dni, the basic dni
+<br/>
+<p align="center">
+this is still a wip im learning how to use github
 
