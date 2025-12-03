@@ -38,5 +38,5 @@ DNI list!
 -12 or 22+ sorry i dont feel comfortable, some crk fans like if i say dni then dni, the basic dni
 <br/>
 <p align="center">
-this is still a wip im learning how to use github
+this is a wip
 
