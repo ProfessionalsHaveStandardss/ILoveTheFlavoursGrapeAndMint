@@ -28,7 +28,7 @@ some stuff about me
 ok hey motherfuckers, call me any of the names above i like to interact with people when i can although im mostly offtab and might not respond unless you whisper me. Also ask to be my friend/ to friend me since i have my friend requests off because im tired off annoying randos that dont even talk to me adding me, i also dont add people unless ive had a good chat and i feel comfortable adding you. If you end up chatting with me i can sometimes be shy or energetic depending on my mood but i promise im a nice person,heavy touch comfort please sit by me and c+h whenever you can sit by me even if i have dni in my name it genuinely brings me so much joy and comfort when someone c+h.
 
 <p align="center">
-  also if you want more info about me pls look at my strawpage (mostly pc only but u can still see alot of my stuff)
+  also if you want more info about me pls look at my strawpage
 
 
 <p align="center">
