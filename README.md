@@ -2,11 +2,6 @@
 <img width="750" height="562" alt="image" src="https://64.media.tumblr.com/2174b5b29fa10b125bb30f7f67c62361/46ce8e91c495afc5-f4/s2048x3072/9f4151700420c630e338429aa4ea7427a2e2fbb3.pnj" />
 <p align="center">
 ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
-  <p align="center">
-  <a href="[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yis6ybj56slfofuru55xi2lz5u&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yis6ybj56slfofuru55xi2lz5u&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
-  </a>
-</p>
 
 <br/>
 <br/>
@@ -39,3 +34,9 @@ ponytown boundries, so like dont cover me unless you're a friend/on my friendsli
 <p align="center">
 i also text people really randomly and from what ive heard ive scared someone bc of it?? all i do it "hello ****." and i love adding dots at the end of my texts sometimes so its best to ignore that, also i suck at grammar 
 
+
+ <p align="center">
+  <a href="[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yis6ybj56slfofuru55xi2lz5u&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yis6ybj56slfofuru55xi2lz5u&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
